@@ -1,3 +1,3 @@
 # Movie-Night
 
-[Campus Movie Night N°41](20211014_Campus_Movie_Night_N41.md)
+[Campus Movie Night N°41](20211014_Movie_Night.md)
