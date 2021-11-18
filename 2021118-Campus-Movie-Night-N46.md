@@ -10,7 +10,7 @@ Date: 18.11.2021
 ---
 
 
-🗳️ **Vote:** https://dudle.inf.tu-dresden.de/rUzpXzbbLw/
+🗳️ **Vote:** https://dudle.inf.tu-dresden.de/lefvEQSH8g/
 
 ---
 
