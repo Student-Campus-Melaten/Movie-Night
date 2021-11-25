@@ -10,7 +10,7 @@ Date: 25.11.2021
 ---
 
 
-🗳️ **Vote:** https://dudle.inf.tu-dresden.de/Campus-Movie-Night-N47//
+🗳️ **Vote:** https://dudle.inf.tu-dresden.de/Campus-Movie-Night-N47/
 
 ---
 
